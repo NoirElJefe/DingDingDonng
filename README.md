@@ -1,0 +1,21 @@
+# DingDingDonng
+Love me
+
+
+
+
+
+
+
+
+
+
+
+
+
+BOIIIIIIIIIIIIIIIIIII YOU LOOKING LIKE A QUATTERMELONE THAT GOT HIT BY A CAR WHILE PLAYING POKEMON GO!
+
+
+
+
+-Love ollie
